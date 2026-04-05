@@ -1,5 +1,7 @@
 hello trenchers, this is tekcoin, a coin with absolutely amazing tek
 
+100% agent buyback applied
+
 i swear the tek works guys
 
 CA:
